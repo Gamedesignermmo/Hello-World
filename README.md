@@ -1,5 +1,5 @@
 # Hello-World
 
-Hi Tony,
+I hope I am doing all this right!
 
-Don't worry, life will be back to normal soon...  it always is.
+Please be gentle!
